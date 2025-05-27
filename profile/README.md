@@ -4,6 +4,8 @@
 
 **Deadshot.io Online** is an **intense multiplayer sniper shooter** that throws you straight into **fast-paced, 3D combat arenas**. Armed with deadly precision rifles, you’ll engage in **hyper-action battles** against real players from around the world. Whether you're a stealth assassin or a rapid-fire gunner, this **free online shooter** offers everything to test your aim and tactics.
 
+## <a href="https://1kb.link/Ke40D9">👉 Click To Play Deadshot.io Unblocked 👈</a>
+
 ---
 
 ## ⚔️ Why Deadshot.io Stands Out
